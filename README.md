@@ -1,1 +1,1 @@
-# Project webpage on Falgship Phones
+# Project webpage on Flagship Phones
